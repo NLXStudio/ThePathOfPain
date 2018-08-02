@@ -1,2 +1,2 @@
 # ThePathOfPain
-The Life is hard when you can't control your brain. 
+Life's hard if you can't control your brain. 
